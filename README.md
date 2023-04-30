@@ -1,1 +1,1 @@
-random thigns
+random things
